@@ -1,2 +1,1 @@
-# mp3-player-
-working on it will get updates soon
+ive been working on this at school lol it will get updates when i work on it :D
